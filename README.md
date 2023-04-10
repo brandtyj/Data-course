@@ -1,1 +1,1 @@
-Course I attednded
+Course I attended
